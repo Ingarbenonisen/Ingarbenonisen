@@ -1,3 +1,3 @@
-Hi there!
+Hei:)
 
-I'm Ingar Benonisen and this is my personal portofolio. Hope you enjoy!
+Mitt navn er Ingar Benonisen, født år 2000 og kommer fra Tromsø. For øyeblikket går jeg tredjeåret på bachelorprogrammet "Anvendt Datateknologi" på OsloMet.
